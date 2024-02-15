@@ -15,4 +15,5 @@ After checking multiple options I decided to this time use Path-Goal Theory as a
 
 ### Quick summary
 In the following picture, you can see quick summary about the words found from the three lists and what kind of similarities I was able to detect.
+
 ![Quick summary from the strengths](/strenghts-in-leadership.png)
