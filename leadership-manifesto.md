@@ -10,11 +10,11 @@ In servant leadership motivation to lead comes from personal desire to serve oth
 Situational leadership and servant leadership share the importance of individual’s needs which affects the communication ways and actions taken. Shared leadership includes to these theories through its nature of “influence arising from any direction in a group” (Dugan 2017, 169). All three theories support each other’s in consultancy business where we work in multiple teams.
 
 Manifesto:
-•	We are all responsible for taking care of each other as shared leadership theory suggests. We aren’t a family, but a tightly collaborative community, working together towards common goal.
-•	By working together and helping others, we leave no heart behind and can deliver best possible outcome to our customers.
-•	Knowledge is to be shared, so let’s share our knowledge to each other’s so that everyone feels empowered to do what it takes. We are here to serve each other’s.
-•	Giving answers is quick way to handle inquiries, but you aren’t Google, coach instead. If coaching isn’t enough, try mentoring. If that isn’t enough, teach. Remember that situational leadership encourages you to transform from directing to coaching to supporting and eventually to delegating (Dugan 2017, 130).
-•	Take care of your wellbeing so you have strength to take care of others also. You cannot serve others if you don’t have the strength to carry yourself. As in airplanes, put the oxygen mask to yourself first before helping others.
+* We are all responsible for taking care of each other as shared leadership theory suggests. We aren’t a family, but a tightly collaborative community, working together towards common goal.
+* By working together and helping others, we leave no heart behind and can deliver best possible outcome to our customers.
+* Knowledge is to be shared, so let’s share our knowledge to each other’s so that everyone feels empowered to do what it takes. We are here to serve each other’s.
+* Giving answers is quick way to handle inquiries, but you aren’t Google, coach instead. If coaching isn’t enough, try mentoring. If that isn’t enough, teach. Remember that situational leadership encourages you to transform from directing to coaching to supporting and eventually to delegating (Dugan 2017, 130).
+* Take care of your wellbeing so you have strength to take care of others also. You cannot serve others if you don’t have the strength to carry yourself. As in airplanes, put the oxygen mask to yourself first before helping others.
 
 ## References
 Dugan, J. 2017. Leadership Theory: Cultivating Critical Perspectives. First Edition. Jossey-Bass, A Wiley Brand. San Francisco. E-book. Read: 25.2.2024.
